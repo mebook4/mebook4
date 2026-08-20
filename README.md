@@ -38,7 +38,7 @@
  ![](https://i.imgur.com/Hkf7oil.png)
 
 
- <p align="center"> i stand with faggotry! not bigotry!
+ <p align="center"> bigots/TRASH leave this page!!!!!
 
 
 
