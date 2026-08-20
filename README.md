@@ -1,58 +1,54 @@
-<p align="center"> ac 4 pfp - scientificsatellite - Tumblr (deactivated) ++ some info is outdated!! T_T
-<p align="center"> wow im on pt-awards wow . (pretty github)
+<p align="center"> wow im on pt-awards wow . (pretty github) </p>
 
-On a serious note, I am no longer a fan of Pressure and I am not going to defend Zeal and his disgusting actions. I support Ren, I have been, and I will soon edit this page of mine to get rid of all the "#1 Superfan of Pressure" as I cannot stand to support the game. For further information, please see [this link](https://web.archive.org/web/20260408195201/https%3A%2F%2Fdocs.google.com%2Fdocument%2Fu%2F0%2Fd%2F1VeGBz0J0UnJruSHRnj4IPyvyz5kRHuNr8nyL6U87zVg%2Fmobilebasic). Content warnings are already displayed on the first page, please be cautious while reading. Further resources and information will be on [this Tumblr post](https://www.tumblr.com/henry-the-yearner/813435858898305024/henrys-official-archive?source=share). Please share this information if possible to warn others on the situation, it is highly advised you make your own conclusion and opinions on this. Ren is not a victim but a survivor, please support her and other survivors of the cruelty from within the developmemt team of the game, do not harass nor tell anyone to harm themselves who were involved as that is not what Ren wants.
+<p align= "center"> <img  src="https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2Fmebook4&label=fans+of+touys&icon=postage-heart-fill&color=%23e685b5&message=&style=plastic&tz=UTC">
 
 ***
 
 </p>
 
-<p align="center"> Support Ren.
 
 <p align="center"> made 4 desktop !!
 
-　　　![](https://i.imgur.com/Oqg7qN6.png)
-
-<p align="center"> art creds : morschiffon
+　　　![](https://i.imgur.com/dgLOmQ0.png)
 
 
 ***
-![](https://i.imgur.com/wYgRhtL.png)
+![](https://i.imgur.com/6gL3cP9.png)
 
-　　　![](https://i.imgur.com/3UXs7Xo.png)
+　　　![](https://i.imgur.com/7SK0gLt.png)
 
 <p align="center"> 　⊹　person or apollo　　﹕　　minor　&&　any prns　⊹　
 
-<p align="center"> art creds : debble-from-deltarune , letvandzone , thegno-umiushi
-
 ***
 
-　　　　　　　　　![](https://i.imgur.com/3BY1W03.png)
+　　　　　　　　　![](https://i.imgur.com/gWnjCn2.png)
 
 <p align="center">  𓏻　i love my f/o　╱　i love my wives　◞
-<p align="center">  ⏖　i dont mind twins of kins　 ：　i do mind doubles of f/os tho　◞
+<p align="center">  ⏖　i dont mind twins of kins　 ：　i do mind doubles of f/os tho　◞ ( selective sharing )
+ <br>
  
-　　　　　　　　　　　　　　　　　　　　　　　　　𓎢𓎟𓎡　sign my [ata](https://whimsycal.atabook.org)book !! pls　◞
+ <a href="https://whimsycal.atabook.org/">
+ <img src="https://i.imgur.com/wlIBm30.png">
+ </a>
+ 
+ <a href="https://pronouns.cc/@whimsy">
+ <img src="https://i.imgur.com/oD0ig3p.png">
+ </a>
+
+ ![](https://i.imgur.com/Hkf7oil.png)
 
 
- 　　　　　　　I still find comfort in Sebastian. I do not stand with what Zerum has done to him, I do not stand with bigotry.
+ <p align="center"> i stand with faggotry! not bigotry!
 
-![](https://i.imgur.com/M6s8s5y.png)
 
 
 ***
 
-e2r ﹕hi! im person or apollo, i use a bunch of other names too!! i love to decorate and create stuff. minor and ADHD! (selective-sharing/non-sharing) i kin prototype,lampert, and a few other characters! same goes for my f/o list.. i use any pronouns and im trans! twitter - sillyol_person, tumblr - sillyol-person
-
-flags ﹕ [trans](https://lgbtqia.wiki/wiki/Transgender), [omnique](https://lgbtqia.wiki/wiki/Omnique), [nebularomantic](https://lgbtqia.wiki/wiki/Nebularomantic), [queer](https://lgbtqia.wiki/wiki/Queer), [f*ggot](https://lgbtqia.wiki/wiki/F*ggot), [monopoly/polymono](https://lgbtqia.wiki/wiki/Monopoly)
+e2r ﹕ "sa lahat ng aking ginagawa/ikaw lamang nasa isip ko sinta/sanay di na tayo magkahiwalay" - ikaw lamangm - silent sanctuary / hello! i'm person/apollo! i use a lot of names + any pronouns! adhd +! possible autism, i am a minor, i am mentally disabled, tone tag user! so479 4w5 enfp elfv sL/U/a[I] Mo/H/i[D]eg [queer](https://lgbtqia.wiki/wiki/Queer), [f*ggot](https://lgbtqia.wiki/wiki/F*ggot)
 
 dni ﹕ proshippers/darkshippers, homophobes/transphobes, xenophobes/racists, rcta, radqueer, basically the basic DNI stuff
 
 pony town stuff ﹕ cuddles + hiding allowed! dont copy but inspo is okay! i dont know what else to write here
-
-kin list ﹕ prototype (regretevator), lampert (regretevator), benny (the lego movie), brandon (brandonworks), piku (pikuniku)
-
-F/O list (romantic) ﹕ griefer & finn mccool (blocktales) , mephone4 (inanimate insanity), masquerade medic (defend the train), dee-jay (untitled elevator game), jose (baseplate civilization), shock marauder (pilgrammed), traffic and lord pwnatious "moneybags" the third (phighting!), macabre_day (the days union), radiant revival miku, kasper / infected (regretevator) , jade & ordem (notoriety) , narrator (tds) , d3rlord (sfawtde) , charlie dompler (smiling friends) , tilin (the pink valley) [info is outdated]
 
 i love minesweeper and sudoku like a mf...
 
