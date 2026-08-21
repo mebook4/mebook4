@@ -1,5 +1,7 @@
 <p align="center"> wow im on pt-awards wow . (pretty github) </p>
 
+<p align= "center"> note: i'm so sorry if anyone viewing this page has tritanomaly/blue-yellow color blindness! scroll to bottom of the page for e2r/easy to read version!
+
 <p align= "center"> <img  src="https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2Fmebook4&label=fans+of+touys&icon=postage-heart-fill&color=%23e685b5&message=&style=plastic&tz=UTC">
 
 ***
