@@ -2,9 +2,15 @@
 
 <p align= "center"> note: i'm so sorry if anyone viewing this page has tritanomaly/blue-yellow color blindness! scroll to bottom of the page for e2r/easy to read version!
 
-<p align= "center"> <img  src="https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2Fmebook4&label=fans+of+touys&icon=postage-heart-fill&color=%23e685b5&message=&style=plastic&tz=UTC">
+<table align="center">
+    <tr>
+        <td>
+ <img src=https://komarev.com/ghpvc/?username=mebook4&label=fellows&color=7ebdb9>
+        </td>
+    </tr>
+</table>
 
-***
+ ***
 
 </p>
 
